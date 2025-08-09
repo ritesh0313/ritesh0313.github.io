@@ -1,5 +1,7 @@
 RITESH GUPTA
+
 Cloud & DevOps Engineer
+
 Email📧 : ritesh0313@gmail.com | Phone📞 : +91-9717771960
 LinkedIn💼 : www.linkedin.com/in/ritesh-gupta-4547568a | Location: Noida, UP
 PROFESSIONAL SUMMARY
